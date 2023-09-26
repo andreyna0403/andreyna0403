@@ -1,16 +1,29 @@
-### Hi there 👋
+aooow potencia
 
-<!--
-**andreyna0403/andreyna0403** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+eu sou a andreyna araujo guimaraes
 
-Here are some ideas to get you started:
+eu estou na escola e esta muito calor 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+estou aqui compartilhando um pouco da minha vida 
+
+# gosto de trabalhar com mular e gado
+
+eu sou da roça
+
+toco berrante gosto de modão 
+
+chama no insta @dreynaguimaraes 
+
+bora tomar terere
+
+![](https://media.tenor.com/VLyRULGXei8AAAAM/alzolanskii-horse.gif)
+
+![](https://media.tenor.com/hC0KPtbtYvsAAAAM/singing-mule.gif)
+
+![](https://media.tenor.com/TrAT4cAT-ZQAAAAM/herding-the-cowboy-way.gif)
+
+o agro nao para
+
+chama nois
+
+irulllllll
